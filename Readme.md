@@ -1,0 +1,1 @@
+Learn how to make the best fruit salad. This quick and easy fruit salad recipe is colorful, beautiful, refreshing and so delicious. If you having guests for summer time, this fruit salad if perfect for this.
